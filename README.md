@@ -1,1 +1,2 @@
-# mini-militia Mod
+The best mini militia mod ever made in the history of mankind
+enjoy...
